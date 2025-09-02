@@ -33,7 +33,7 @@
 ---
 
 ## 📫 Connect With Me
-- 💼 [LinkedIn](https://www.linkedin.com/in/gokuldas-ak)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/gokuldas-ak-08b931169)  
 - 📧 Email: gokuldaskannadas@gmail.com  
 - 🌐 Portfolio: *Coming Soon*  
 
